@@ -1,3 +1,11 @@
-![misiks](https://scontent.fsaw1-9.fna.fbcdn.net/v/t31.0-0/p600x600/16112647_757439281074864_7863460123238741126_o.jpg?_nc_cat=110&_nc_sid=dd9801&_nc_ohc=-xW4xM40P4IAX9qw5fq&_nc_ht=scontent.fsaw1-9.fna&_nc_tp=6&oh=af53b7df7a7d37c1a47a53e6b0a6bdf3&oe=5F35ADF6)
+![misiks](https://i.imgur.com/D5vIMlx.png)
 
 weyk up neo, the metrix has you.
+
+https://kubilay.io
+https://open.spotify.com/user/kubilaysalih?si=Yw25T1wuT-moYIKysTBHAg
+https://stackoverflow.com/users/12234166/kubilay-salih
+https://expo.io/snacks/@kubilaysali
+https://codepen.io/kblyslh
+https://www.youtube.com/watch?v=9H0r8nI72bo
+https://www.linkedin.com/in/kubilay-salih-b4aaa3109/
