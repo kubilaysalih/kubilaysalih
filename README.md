@@ -4,7 +4,7 @@ weyk up neo, the metrix has you.
 
 https://kubilay.io
 
-https://open.spotify.com/user/kubilaysalih?si=Yw25T1wuT-moYIKysTBHAg
+https://open.spotify.com/user/kubilaysalih
 
 https://stackoverflow.com/users/12234166/kubilay-salih
 
