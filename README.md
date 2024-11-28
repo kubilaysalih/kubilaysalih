@@ -8,7 +8,7 @@ https://open.spotify.com/user/kubilaysalih
 
 https://stackoverflow.com/users/12234166/kubilay-salih
 
-https://expo.io/snacks/@kubilaysali
+https://expo.io/snacks/@kubilaysalih
 
 https://codepen.io/kblyslh
 
